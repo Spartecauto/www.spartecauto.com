@@ -1,1 +1,1 @@
-# www.spartecauto.com
+www.spartecauto.com
